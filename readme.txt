@@ -1,1 +1,1 @@
-Hoi
+De leden zijn: Joost, Maria, Seyi
